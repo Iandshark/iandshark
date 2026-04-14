@@ -9,3 +9,5 @@
 
 
 main github -> [@poaching](https://github.com/poaching) ![](https://gifcity.carrd.co/assets/images/gallery01/d35af779.gif?v=20a350bf)
+
+> " And all the girlies say I'm pretty fly for a white guy    .ᐟ  ,,
